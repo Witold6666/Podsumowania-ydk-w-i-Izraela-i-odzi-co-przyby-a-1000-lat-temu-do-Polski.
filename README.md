@@ -1,0 +1,1 @@
+# Podsumowania-ydk-w-i-Izraela-i-odzi-co-przyby-a-1000-lat-temu-do-Polski.
